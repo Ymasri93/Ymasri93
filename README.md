@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ymasri93
+- 👋 Hi, I’m Yasir Masri @Ymasri93
 - 📫 How to reach me: yasir.masri@gmail.com | [Linkedin](https://www.linkedin.com/in/yasir-masri/)
 
 <!---
